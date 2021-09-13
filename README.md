@@ -20,3 +20,5 @@ But this word could be interpreted in many ways: "KWAAk" is a full dictionary as
 
 Indeed i love my little Duck as much as i love my cute cat.
 But can this dictionarry could find me a nice advice on how to keep both my duck and my cat in the same house with Harmoney?!
+And sudddenly, Donald entered the room ! 
+![donald](giphy-2.gif)
