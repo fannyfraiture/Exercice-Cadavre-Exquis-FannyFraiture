@@ -8,3 +8,7 @@ After that she met boutroulle, the duck.
 This little duck help the girl to review her code and solved problem. they begin to come bestfriend 
 
 ![best friend](https://i.giphy.com/media/3orieM2yXrt2kK4B4Q/giphy.webp)
+
+### This is a really cool duck, and he will surely help you a lot. 
+### I find that it's hard to make this duck talk, he's a little shy. 
+### Remember, Dont lose the duck or you wont be getting any help !!!
