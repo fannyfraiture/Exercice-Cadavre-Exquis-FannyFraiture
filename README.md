@@ -15,3 +15,6 @@ This little duck help the girl to review her code and solved problem. they begin
 The duck gives good advices although he can only say one word
 
 But this word could be interpreted in many ways: "KWAAk" is a full dictionary as your imagination is limitless. Don't undersestimate him : he's a psychic.
+
+Indeed i love my little Duck as much as i love my cute cat.
+But can this dictionarry could find me a nice advice on how to keep both my duck and my cat in the same house with Harmoney?!
