@@ -5,7 +5,9 @@ After that she met boutroulle, the duck.
 
 ![pictures of boutroulle](boutroulle.png)
 
-This little duck help the girl to review her code and solved problem. they begin to come bestfriend 
+This little duck help the girl to review her code and solved problem. they begin to come bestfriend
+
+It's hard to believe, but that duck was magic! It was, among other things, thanks to him that she held on to her conquest of the web dev. When she despaired, he was there to cheer her up and even bring her the solutions she was waiting for.
 
 ![best friend](https://i.giphy.com/media/3orieM2yXrt2kK4B4Q/giphy.webp)
 
